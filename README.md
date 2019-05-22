@@ -1,2 +1,2 @@
-# Ak-ll-Buz-Dolab-
+# Akili-Buz-Dolabi
 Akilli Buz Dolabi
