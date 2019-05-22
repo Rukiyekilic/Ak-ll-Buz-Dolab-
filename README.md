@@ -1,2 +1,2 @@
 # Ak-ll-Buz-Dolab-
-Akıllı Buz Dolabı 
+Akilli Buz Dolabi
